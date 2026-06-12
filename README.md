@@ -5,7 +5,7 @@ opinion numero one when will genshin impact have a dog girl i made like 5 dog gi
 opinion 2 i fucking looove enneagrams ive been fixiated (deadass) for the past week i cannot get it off my mind.i spent liek 10 hours straight drawing didnt even realize the time
 anyway heres my tritype
 
-<img width="350" height="400" alt="fullbody" src="https://github.com/user-attachments/assets/6d61b144-d0e8-4203-8e26-49fc6430fa11" /> <img width="107" height="400" alt="chibi" src="https://github.com/user-attachments/assets/f2139dfe-6bd1-4a9f-8639-b4fdcc64da0b" /> isnt she the cutest ??? i love her
+<img width="320" height="400" alt="fullbody" src="https://files.catbox.moe/tlt0n5.png" /> <img width="107" height="400" alt="chibi" src="https://github.com/user-attachments/assets/f2139dfe-6bd1-4a9f-8639-b4fdcc64da0b" /> isnt she the cutest ??? i love her
 
 as said in the full body art shes based off the following arche/stereotypes: the princess, the damsel in distress, spoiled brat/rotten/sweet, primadonna. shes also based off the songs candle queen by ghost n pals, primmadonna oh no and are you satisfied by marina
 
