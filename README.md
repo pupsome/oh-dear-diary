@@ -14,6 +14,7 @@ as said in the full body art shes based off the following arche/stereotypes: the
       1. she has cloud particles and lacks pupils because my core in so9, which is a gut type and follows those rules <br>
       2. she has pigtails to resemble sp2's childishness and soo cuteness <br>
       3. she has 3 bows, one of which is hidden behind her. this is because i actually had trouble identifying my heart fix, which i thought was e3, and i still do exhibit behaviours of an so3 (narcissism and an instinctive desire for status and reputation in particular) <br>
-      4. all of her colors are lighter than her body, which is symbolization of how an sp2 acts and appears younger to please others and attract pity/protectiveness. she makes herself more appealingbr>
-      5. she shows very little skin, which is a metaphor for her hiding her vulnerabilities. in addition her entire outfit is extremely showy and eye catching, which distracts from her actually really simple body/mind/blahblahblah u get the gist
+      4. all of her colors are lighter than her body, which is symbolization of how an sp2 acts and appears younger to please others and attract pity/protectiveness. she makes herself more appealing <br>
+      5. she shows very little skin, which is a metaphor for her hiding her vulnerabilities. in addition her entire outfit is extremely showy and eye catching, which distracts from her actually really simple body/mind/blahblahblah u get the gist <br>
+      6. her dress isnt full on princess dress (shorter skirt, more comfort than flashiness (believe it or not)) because shes a FRAUD
 </details>
